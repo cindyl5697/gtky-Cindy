@@ -1,4 +1,4 @@
-My name is Cindy
+My name is Cindy Li.
 
 I'm 15 years old.
 
